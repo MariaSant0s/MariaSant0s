@@ -2,7 +2,7 @@
 - 👀 Estou Interresada a Tirar Notas Boas
 - 🌱 Atualmente Estou Aprendendo GitHub
 - 💞️ Estou Colaborando Com Meus Colegas
-- 📫 Como Chegar Até mim por redes sociais
+- 📫 Por Gmail maria.santos.almeida@escola.pr.gov.br 
 
 <!---
 MariaSant0s/MariaSant0s is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
